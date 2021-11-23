@@ -168,7 +168,7 @@ Events and people:
 - **Isaac Newton**: born in Lincolnshire, eastern England, went to Cambridge University
 
 #### James 2
-- Roman Catholic brother and successor of Charles 1, who had no children
+- Roman Catholic brother and successor of Charles 2, who had no children
 - King James 2 of England, Wales, and Ireland, King James 7 of Scotland
 - Roman Catholic, but had two Protestant daughters
 
